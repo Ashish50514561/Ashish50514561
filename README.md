@@ -1,7 +1,7 @@
 
 # Hi there, I'm Ashish  👋 
 
-## I'm a Learner, Developer, and Student!!
+## I'm a Learner, Student, and Developer!!
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
